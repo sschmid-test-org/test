@@ -9,7 +9,7 @@ asx
 sdc
 cs
 sdcsdcfl,
-sdc
+sdcc
 qwd
 dfer
 wefxc,
