@@ -2,4 +2,16 @@
 new
 dd
 scsdcscd
-lj
+evrv
+ö,ddqwd
+ljddwd
+xc
+xc
+dwed
+,,
+cwe
+dc
+ölk
+mm
+l.m
+mn
